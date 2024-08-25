@@ -1,4 +1,4 @@
-# 'm colby munpanthavong (he/him) 🏇
+# i'm colby munpanthavong (he/him) 🏇
 ## reach me at jamescameron24@proton.me
 music enthusiast, gamer, techie, cs student
 
